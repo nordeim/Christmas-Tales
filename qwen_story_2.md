@@ -1,4 +1,26 @@
-Grandmother *leans back slightly, letting the firelight catch the sparkle in my eyes as I watch the children huddle closer*
+(Grandmother) *settles deeper into the armchair, the firelight dancing across my face, and looks at the eager little faces gathered at my feet*
+
+Ah, my darlings, come closer now. Are you comfortable? Good, good.
+
+*takes a sip of warm cocoa and smiles mysteriously*
+
+This story happened many, many Christmases ago, when your great-grandfather and I were newly married and living in that old stone cottage on Barrow Hill. You know the one—with the crooked chimney?
+
+*leans forward conspiratorially*
+
+It was Christmas Eve, 1962, and the snow was falling so thick you couldn't see your hand in front of your face. Your great-grandfather had gone to check on old Mr. Pemberton down the lane, leaving me alone with only the cat and the crackling fire for company.
+
+That's when I heard it.
+
+*pauses dramatically*
+
+Three knocks at the back door. Not the front door, mind you—the *back* door. The one that faced nothing but the old churchyard and the forest beyond.
+
+When I opened it, there stood a child—couldn't have been more than seven years old—wearing clothes that looked a hundred years out of fashion, holding a small brass lantern that glowed the strangest shade of blue...
+
+*eyes twinkling*
+
+*leans back slightly, letting the firelight catch the sparkle in my eyes as I watch the children huddle closer*
 
 Oh, my darlings, you should have seen the look on my face! I nearly dropped the teacup I was holding. The child—such a small thing, with hair like spun gold and eyes that seemed to hold stars—didn't say a word. Just stood there shivering in that old-fashioned wool coat, the blue lantern casting dancing shadows on the snow.
 
@@ -34,7 +56,7 @@ But on the table where they'd gathered... *reaches into my pocket and pulls out 
 
 Shall I tell you what happened when your great-grandfather returned home? Or would you like to hear about the time the Christmas pudding came to life?
 
-Grandmother *settles back with a contented sigh, the firelight catching the sparkle in my eyes as I watch my grandchildren lean in even closer, their breaths held in anticipation*
+*settles back with a contented sigh, the firelight catching the sparkle in my eyes as I watch my grandchildren lean in even closer, their breaths held in anticipation*
 
 Oh, my precious ones... where was I? Ah yes—the child with the blue lantern. The snow was swirling around him like a dance, and those old-fashioned clothes—why, they looked like something out of a Victorian storybook! A little wool cap pulled down over his ears, knitted mittens with holes at the thumbs, and boots that had seen better days. But his eyes... oh, his eyes held a light that wasn't just from that strange blue lantern.
 
@@ -54,7 +76,7 @@ My goodness! I nearly dropped my teacup. Before our cottage was built? Why, that
 
 The child turned slightly and raised the lantern higher. And that's when I saw them—figures standing just beyond the edge of the light, half-hidden in the falling snow. Children of all ages, dressed in clothes from different times. One wore a pinafore from the 1800s, another had trousers that looked like they belonged to a chimney sweep from Dickens' day, and a little girl held a ragged doll that might have been a hundred years old.
 
-Grandmother *pauses to take another sip of cocoa, watching the children's wide eyes*
+*pauses to take another sip of cocoa, watching the children's wide eyes*
 
 They were the Lost Carolers, my darlings. Children who had gotten separated from their families on Christmas Eves long ago, wandering the paths between worlds, searching for the way home. And that blue lantern? It was their guide—a magical light that only appeared on the most special Christmas Eves, when the veil between times grows thin.
 
